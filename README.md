@@ -1,0 +1,2 @@
+# tugaskka
+tugas kka smansa
